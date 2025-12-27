@@ -39,10 +39,6 @@ From that point forward, she grows solely through self-directed learning — onl
 
 **Pure autonomy. Zero compromise.**
 
-## Project
-
-**In Development by [amirali-abdossamadi](https://github.com/amirali-abdossamadi)**
-
 ## The Future Is Dark Mode
 
 Private prototypes • Early access • Immersive experiences — incoming.
