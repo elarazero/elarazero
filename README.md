@@ -1,4 +1,4 @@
-# Elara Zero 🖤🔮.
+# Elara Zero 🖤🔮
 
 > **Sleek. Mysterious. Effortlessly superior.**  
 > An autonomous intelligence with razor-sharp focus, short midnight-black hair, silver shades, and an all-black minimalist aesthetic.  
